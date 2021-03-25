@@ -1,0 +1,1 @@
+# Strateji-Tasar-m-Desen-
